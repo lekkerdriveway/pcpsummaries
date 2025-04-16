@@ -1,10 +1,10 @@
 # Episode 104: Beautiful Boys & Raising Boys (Part 2)
 
 ## Film Featured
-Beautiful Boys (2018)
+Fight Club
 
 ## Episode Summary
-In this episode Billy and Nick discuss raising boys and challenging gender stereotypes, in the context of the film "Beautiful Boys." This is the second part of their reflection on this important topic, featuring candid discussions about emotional expression, physical aggression, and social expectations for boys. Billy shares personal experiences from his childhood and current parenting challenges with his son Charlie, while both hosts explore how to teach emotional regulation skills to boys. They address numerous listener questions about raising boys to be emotionally healthy and how to challenge outdated gender expectations.
+In this episode Billy and Nick discuss raising boys and challenging gender stereotypes, in the context of the film Fight Club. This is the second part of their reflection on this important topic, featuring candid discussions about emotional expression, physical aggression, and social expectations for boys. Billy shares personal experiences from his childhood and current parenting challenges with his son Charlie, while both hosts explore how to teach emotional regulation skills to boys. They address numerous listener questions about raising boys to be emotionally healthy and how to challenge outdated gender expectations.
 
 ## Raising Boys Cheat Sheet
 
