@@ -1,4 +1,4 @@
-# Episode 10: Ferris Bueller's Day Off & School Attendance Struggles
+# Episode 10: Ferris Bueller's Day Off & School Attendance Struggles Part 2
 
 ## Episode Summary
 In this episode Billy and Nick discuss children who struggle to attend school, in the context of the film "Ferris Bueller's Day Off." This is a reflective practice episode following their deeper dive on the topic in episode 9. They explore how parents' mental health impacts children's school attendance, ways to identify early signs of school refusal, and strategies for helping kids who are already struggling. Billy emphasizes the importance of understanding what's underlying refusal behaviors rather than simply forcing attendance, while Nick shares personal reflections on his own childhood school avoidance tactics.
