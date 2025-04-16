@@ -1,4 +1,4 @@
-# Episode 104: Beautiful Boy & Raising Boys (Reflection 2)
+# Episode 104: Fight Club & Beautiful Boys (Reflection 2)
 
 ## Episode Summary
 In this episode Billy and Nick discuss their second reflection on raising boys. They respond to numerous listener questions about how to support healthy emotional development in boys. Billy shares personal experiences about his own journey with masculinity and his current parenting challenges with his son Charlie. The conversation covers societal expectations of boys, teaching emotional regulation rather than suppression, and challenging gender stereotypes. Both hosts emphasize the importance of creating supportive environments where boys can express their full range of emotions without shame.
