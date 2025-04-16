@@ -1,10 +1,10 @@
 # Episode 105: Fight Club & Beautiful Boys (Part 3) - Challenging Toxic Masculinity
 
 ## Episode Summary
-In this episode Billy and Nick discuss strategies for challenging toxic masculinity in children and addressing its harmful impacts, in the context of the films "Fight Club" and "Beautiful Boy." This is the final part of their three-part series on this topic, where they respond to listener reflections about experiences with toxic masculinity across generations. The episode includes powerful stories about parents breaking cycles of generational trauma, teachers confronting harmful behavior in schools, and children learning to express emotions in healthy ways. Billy introduces the concept of the "Man Box" to explain how restrictive masculine norms can lead to violence and poor mental health outcomes.
+In this episode Billy and Nick discuss strategies for challenging toxic masculinity in children and addressing its harmful impacts, in the context of the films "Fight Club". This is the final part of their three-part series on this topic, where they respond to listener reflections about experiences with toxic masculinity across generations. The episode includes powerful stories about parents breaking cycles of generational trauma, teachers confronting harmful behavior in schools, and children learning to express emotions in healthy ways. Billy introduces the concept of the "Man Box" to explain how restrictive masculine norms can lead to violence and poor mental health outcomes.
 
 ## Film Featured
-Fight Club (1999) and Beautiful Boy (2018)
+Fight Club (1999)
 
 ## Challenging Toxic Masculinity Cheat Sheet
 

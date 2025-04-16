@@ -4,7 +4,11 @@
 Fight Club
 
 ## Episode Summary
+<<<<<<< HEAD:episodes/104 - Fight Club & Beautiful Boys Part 2.md
 In this episode Billy and Nick discuss raising boys and challenging gender stereotypes, in the context of the film Fight Club. This is the second part of their reflection on this important topic, featuring candid discussions about emotional expression, physical aggression, and social expectations for boys. Billy shares personal experiences from his childhood and current parenting challenges with his son Charlie, while both hosts explore how to teach emotional regulation skills to boys. They address numerous listener questions about raising boys to be emotionally healthy and how to challenge outdated gender expectations.
+=======
+In this episode Billy and Nick discuss raising boys and challenging gender stereotypes. This is the second part of their reflection on this important topic, featuring candid discussions about emotional expression, physical aggression, and social expectations for boys. Billy shares personal experiences from his childhood and current parenting challenges with his son Charlie, while both hosts explore how to teach emotional regulation skills to boys. They address numerous listener questions about raising boys to be emotionally healthy and how to challenge outdated gender expectations.
+>>>>>>> origin/main:episodes/104 - Beautiful Boys & Raising Boys Part 2.md
 
 ## Raising Boys Cheat Sheet
 
